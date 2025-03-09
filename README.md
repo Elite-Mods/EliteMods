@@ -40,9 +40,15 @@ Are you ready to take your modding skills to the next level? Follow these steps 
 
 💌 Contact Us 💌
    8c599d97ae087c23f959d4634e941d8f9f9c8842.png   
-{🎮 Discord: Elite Mod`s Discord](http://discord.gg/onepixel)
+
+
+🎮 Discord: Elite Mod`s Discord: http://discord.gg/onepixel
+
 https://elitemods.eu/
+
+
 📧 Email: support@elitemods.com
+
 💎 Be Part of Something Elite!
 At Elite Mods, we’re not just building mods; we’re building a community of talented creators who are transforming the FiveM experience. Whether you’re an experienced modder or a fresh talent ready to shine, we’d love to have you on our team.
 
