@@ -39,13 +39,9 @@ Are you ready to take your modding skills to the next level? Follow these steps 
 3️⃣ Apply: Send your application to [your email/contact link] or join our Discord to chat directly with our team.
 
 💌 Contact Us 💌
-   8c599d97ae087c23f959d4634e941d8f9f9c8842.png   
-
-
 🎮 Discord: Elite Mod`s Discord: http://discord.gg/onepixel
 
 https://elitemods.eu/
-
 
 📧 Email: support@elitemods.com
 
