@@ -50,7 +50,7 @@ What are you waiting for? Browse our collections and start enhancing your FiveM 
 
 https://elitemods.eu/
 
-
+https://elite-mods.tebex.io/
 
 
 
@@ -105,6 +105,8 @@ Are you ready to take your modding skills to the next level? Follow these steps 
 📧 Email: support@elitemods.com
 
 https://elitemods.eu/
+
+https://elite-mods.tebex.io/
 
 💎 Be Part of Something Elite!
 At Elite Mods, we’re not just building mods; we’re building a community of talented creators who are transforming the FiveM experience. Whether you’re an experienced modder or a fresh talent ready to shine, we’d love to have you on our team.
