@@ -1,4 +1,4 @@
-Join the Elite Mod`s Team! 
+Join the Elite Mods Team! 
 💎Empowering Creators, Building Excellence 💎
 At Elite Mod`s, we’re on a mission to revolutionize the FiveM modding community. With a foundation built on 💡 innovation, 🎨 creativity, and 🤝 collaboration, we’re proud to work with over 20 independent creators who share our passion for creating top-tier mods for servers worldwide. Now, we’re inviting talented individuals like YOU to join us and take the next step in your modding journey!
 
